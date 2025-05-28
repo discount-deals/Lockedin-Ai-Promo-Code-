@@ -19,8 +19,7 @@ Whether for residential smart homes, corporate offices, or high-security facilit
 
 ### **1. AI-Powered Facial & Voice Recognition**  
 - Uses deep learning algorithms to identify authorized users through facial features or voice patterns.  
-- Reduces reliance on physical keys, PINs, or access cards.  👇👇👇
-[![Discount button](https://github.com/user-attachments/assets/0f6a2374-4033-4349-98f3-23d88fb8a1dd)](https://www.lockedinai.com/?via=muhammad)
+- Reduces reliance on physical keys, PINs, or access cards.  
 ### **2. Real-Time Threat Detection**  
 - Detects suspicious behavior (e.g., loitering, forced entry attempts) and sends instant alerts.  
 - Integrates with cameras and motion sensors for 24/7 monitoring.  
@@ -31,7 +30,9 @@ Whether for residential smart homes, corporate offices, or high-security facilit
 
 ### **4. Smart Automation & Integration**  
 - Works with IoT devices (e.g., lights, alarms, smart assistants) to trigger actions like turning on lights when a door is unlocked.  
-- Compatible with platforms like Google Home, Amazon Alexa, and Apple HomeKit.  
+- Compatible with platforms like Google Home, Amazon Alexa, and Apple HomeKit.
+
+[![Discount button](https://github.com/user-attachments/assets/0f6a2374-4033-4349-98f3-23d88fb8a1dd)](https://www.lockedinai.com/?via=muhammad)
 
 ### **5. Biometric Authentication**  
 - Supports fingerprint and retina scanning for high-security environments.  
