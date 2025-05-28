@@ -3,24 +3,24 @@
 ## **Introduction**  
 In today’s fast-paced digital world, security and smart automation are more critical than ever. **Lockedin AI** is an advanced artificial intelligence-powered security and automation system designed to enhance safety, efficiency, and convenience in homes, offices, and industrial environments. By integrating AI with smart locks, surveillance, and access control systems, Lockedin AI provides a seamless, intelligent, and highly secure way to manage entry points and monitor activities in real time.  
 
-<a href="https://www.lockedinai.com/?via=muhammad">
-  <img src="https://github.com/user-attachments/assets/09f62a0e-4126-421a-ac4e-00c289a9206d" alt="A beautiful sunset" style="max-width: 100%; height: auto; width: 100%;" />
-</a>
+[![Discount button](https://github.com/user-attachments/assets/d84d81bf-3162-482e-9e2e-e24303a0283e)](https://www.lockedinai.com/?via=muhammad)
 
 
-## [ Use This Exclusive Link to Get 40% OFF ](https://www.lockedinai.com/?via=muhammad)
+## [ Use This Exclusive Link to Get 80% OFF ](https://www.lockedinai.com/?via=muhammad) 👆👆👆
 
 
-Whether for residential smart homes, corporate offices, or high-security facilities, Lockedin AI leverages machine learning, facial recognition, and behavioral analytics to deliver a next-generation security solution that adapts to user needs while preventing unauthorized access.  
+Whether for residential smart homes, corporate offices, or high-security facilities, Lockedin AI leverages machine learning, facial recognition, and behavioral analytics to deliver a next-generation security solution that adapts to user needs while preventing unauthorized access.  👇👇👇
+
+[![Discount button](https://github.com/user-attachments/assets/0f6a2374-4033-4349-98f3-23d88fb8a1dd)](https://www.lockedinai.com/?via=muhammad)
 
 ## **Key Features of Lockedin AI**  
 
-## [Use This Exclusive Link to Get 40% OFF ](https://www.lockedinai.com/?via=muhammad)
+## [Use This Exclusive Link to Get 80% OFF ](https://www.lockedinai.com/?via=muhammad)
 
 ### **1. AI-Powered Facial & Voice Recognition**  
 - Uses deep learning algorithms to identify authorized users through facial features or voice patterns.  
-- Reduces reliance on physical keys, PINs, or access cards.  
-
+- Reduces reliance on physical keys, PINs, or access cards.  👇👇👇
+[![Discount button](https://github.com/user-attachments/assets/0f6a2374-4033-4349-98f3-23d88fb8a1dd)](https://www.lockedinai.com/?via=muhammad)
 ### **2. Real-Time Threat Detection**  
 - Detects suspicious behavior (e.g., loitering, forced entry attempts) and sends instant alerts.  
 - Integrates with cameras and motion sensors for 24/7 monitoring.  
