@@ -5,13 +5,14 @@ In today’s fast-paced digital world, security and smart automation are more cr
 
 [![Discount button](https://github.com/user-attachments/assets/d84d81bf-3162-482e-9e2e-e24303a0283e)](https://www.lockedinai.com/?via=muhammad)
 
+# 👉 [Use This Spacial Link to Get 80% OFF ](https://www.lockedinai.com/?via=muhammad)
 
 ## [ Use This Exclusive Link to Get 80% OFF ](https://www.lockedinai.com/?via=muhammad) 👆👆👆
 
 
 Whether for residential smart homes, corporate offices, or high-security facilities, Lockedin AI leverages machine learning, facial recognition, and behavioral analytics to deliver a next-generation security solution that adapts to user needs while preventing unauthorized access.  👇👇👇
 
-[![Discount button](https://github.com/user-attachments/assets/0f6a2374-4033-4349-98f3-23d88fb8a1dd)](https://www.lockedinai.com/?via=muhammad)
+[![Discount button](https://github.com/user-attachments/assets/f1d4b1a6-1f8f-45db-8693-f9e06e10a425)](https://www.lockedinai.com/?via=muhammad)
 
 ## **Key Features of Lockedin AI**  
 
@@ -22,7 +23,9 @@ Whether for residential smart homes, corporate offices, or high-security facilit
 - Reduces reliance on physical keys, PINs, or access cards.  
 ### **2. Real-Time Threat Detection**  
 - Detects suspicious behavior (e.g., loitering, forced entry attempts) and sends instant alerts.  
-- Integrates with cameras and motion sensors for 24/7 monitoring.  
+- Integrates with cameras and motion sensors for 24/7 monitoring.
+- 
+[![Discount button](https://github.com/user-attachments/assets/f1d4b1a6-1f8f-45db-8693-f9e06e10a425)](https://www.lockedinai.com/?via=muhammad)
 
 ### **3. Dynamic Access Control**  
 - Grants or revokes access remotely via a mobile app.  
@@ -31,8 +34,6 @@ Whether for residential smart homes, corporate offices, or high-security facilit
 ### **4. Smart Automation & Integration**  
 - Works with IoT devices (e.g., lights, alarms, smart assistants) to trigger actions like turning on lights when a door is unlocked.  
 - Compatible with platforms like Google Home, Amazon Alexa, and Apple HomeKit.
-
-[![Discount button](https://github.com/user-attachments/assets/0f6a2374-4033-4349-98f3-23d88fb8a1dd)](https://www.lockedinai.com/?via=muhammad)
 
 ### **5. Biometric Authentication**  
 - Supports fingerprint and retina scanning for high-security environments.  
